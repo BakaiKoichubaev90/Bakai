@@ -1,0 +1,2 @@
+# Bakai
+Baarynar chogu ishtegile
